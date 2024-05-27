@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **FLUTTER**
 
-- 📫 How to reach me **yadhuachoozz@gmail.com**
+- 📫 How to reach me **deniljm12@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
